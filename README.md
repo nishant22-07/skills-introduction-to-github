@@ -6,7 +6,7 @@
 
 ### 🌟 You've successfully completed the exercise!! 🌟
 
-## 🚀 Share Your Success!
+## 🚀 Share Your Success with your friends!
 
 **Show off your new skills and inspire others!**
 
